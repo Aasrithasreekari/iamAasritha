@@ -1,2 +1,0 @@
-# iamAasritha
-Aasritha sreekari singavarapu
